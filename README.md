@@ -1,4 +1,4 @@
-# jay-ja Okocha
+# jay-jay Augustine Azuka Okocha
 
 ## profession
 
